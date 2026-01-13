@@ -1,1 +1,1 @@
-# TradingJournalWeb
+KURT TRADING JOURNL
